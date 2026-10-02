@@ -1,1 +1,1 @@
-![Kevin quote](kevin-quote.jpg)
+![Turtledove](turtledove.jpg)
